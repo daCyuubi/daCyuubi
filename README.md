@@ -1,4 +1,4 @@
-# Hi there, I'm Natalie! 👋
+# Hi there, I'm Kaitlyn! 👋
 You may have found me from my past Fortnite, homebrew and other related projects.
 
 ## About ⚡
